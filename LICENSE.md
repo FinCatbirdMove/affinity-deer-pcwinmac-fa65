@@ -1,4 +1,4 @@
-# 
+# Mis à jour Affinity Designer extensions pour Mac OS | Léger Affinity Designer extensions pour PC Windows. Avec rigging et opérations de tracé — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
